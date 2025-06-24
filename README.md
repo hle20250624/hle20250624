@@ -25,7 +25,7 @@
 
 点击访问：<a href="https://hl429.pages.dev/"> 黑料社</a>
 
-点击访问：<a href="https://hl433.pages.dev/"> 黑料社地址</a>
+点击访问：<a href="https://hl433.pages.dev/"> 黑料社最好</a>
 
 点击访问：<a href="https://hl438.pages.dev/">每日分享最新吃瓜网最新官网地址</a>
 
